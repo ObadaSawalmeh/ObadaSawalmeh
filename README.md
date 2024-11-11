@@ -1,4 +1,4 @@
-# 💫 About Me:👨‍💻 All of my projects are available at obadaswh.netlify.app<br><br>📽️ I regularly make youtube videos on https://www.youtube.com/@gcode3<br><br>📫 How to reach me salimobada174@gmail.com<br><br>📄 Know about my experiences https://drive.google.com/file/d/19tn3Wbe0nQaCRFi-554cwTuFZucDSDv2/view?usp=sharing<br><br>⚡ Fun fact I'm a fast learner
+# 💫 About Me:👨‍💻 All of my projects are available at [obadaswh.netlify.app](https://sawalmehportfolio.netlify.app/)<br><br>📽️ I regularly make youtube videos on https://www.youtube.com/@gcode3<br><br>📫 How to reach me salimobada174@gmail.com<br><br>📄 Know about my experiences https://drive.google.com/file/d/19tn3Wbe0nQaCRFi-554cwTuFZucDSDv2/view?usp=sharing<br><br>⚡ Fun fact I'm a fast learner
 
 
 ## 🌐 Socials:
